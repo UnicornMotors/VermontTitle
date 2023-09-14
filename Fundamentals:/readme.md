@@ -12,4 +12,8 @@ You can download the Vermont VD-119 form, fill it out, and send it with a check 
 
 If you're registering a motorcycle, Vermont doesn't title anything under 300cc."
 
-https://cartitles.com/how-to-use-the-vermont-title-loophole-to-get-a-vehicle-title/
+# Guide:
+- https://cartitles.com/how-to-use-the-vermont-title-loophole-to-get-a-vehicle-title/
+- https://cartitles.com/vermont-vin-verification-for-title-loophole-explained/
+- https://cartitles.com/how-to-calculate-sales-tax-for-vermont-title-loophole/
+- https://cartitles.com/top-5-tips-for-using-the-vermont-title-loophole/
